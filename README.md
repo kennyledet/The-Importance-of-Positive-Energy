@@ -1,5 +1,18 @@
 # The-Importance-of-Positive-Energy
 
+QuickNote:
+I started this open source book to help people feel better. Please check it out and contribute if you'd like :)
+
+I'll get it published with all author names once we decide on finality, and we'll share donations with contributors through Bountysource! https://salt.bountysource.com/
+
+Even if you don't want to contribute, please star it to help yourself be more positive in the future.
+
+
+Best,
+Kendrick
+
+
+Book:
 To truly love your brethren is to want them to feel positive energies. Positive energies will make them smile, laugh and feel comfortable, without feeling negative afterword. Meditate on this simple idea, and you have the key to feeling good yourself. It's to make others feel positive. To laugh with others is the opposite of pain. I like comedy better than dram for this reason, but to watch dramas like Law and Order is good as well, to learn how to better stay away from negativity. As humans, we sing like birds, we dance like deer. We like to drink beer socially. We like to congregate and be with each other. When happy sometimes, we like to be to ourselves. Do all of these things, but do them the right way, which is comfortably, and we shall be positive and successful.
 
 Ask yourself this: would you rather be reading right next to a person that's smiling or looking sad? To read not to one who is truly happy definitely won't make you, and you should care as a fellow human, saddened at their sadness. Now you can focus on reading! But if a person is sad near you while engaged in activity, focus on them first.Even if you can't solve their problems, as to help is to emit peace to them. To emit peace to your brethren is to also give yourself a sense of peace. Think about it. In an interaction, if two people are at peace, then both of them are calm. Thanks Stephanie.
